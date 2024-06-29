@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Smtersers
+- 👀 I’m interested in coding 
